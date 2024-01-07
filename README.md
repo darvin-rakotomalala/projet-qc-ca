@@ -2,7 +2,7 @@
 - Introduction générale de l'approche
 - Pourquoi podcast ?
 - Qui suis-je ? (bref presentation)
-- Plaisir de partager mes ketrika (possible pour tout le monde) / Etapes faites (fruit de mes parcours)
+- Plaisir de partager mes ketrika (possible pour tout le monde) / étapes natao
 - Commentaires et liste des questions par rapport an'le podcast
 - Point tsy mazava na point manitikitika na juste par curiosité fotsiny
 - Reponses anonyme pour toutes les questions
