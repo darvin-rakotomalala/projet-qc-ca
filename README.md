@@ -1,4 +1,5 @@
 ## Points ketrika kandra ivelany - Québec (Canada)
+- Introduction générale de l'approche
 - Pourquoi podcast
 - Qui suis-je (bref presentation)
 - Plaisir de partager mes ketrika (possible pour tout le monde) / Etapes faites (fruit de mes parcours)
