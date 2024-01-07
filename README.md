@@ -18,29 +18,29 @@
 - Travail-ko 35h par semainer -> 7h par jour et FLEXIBLE pour équilibre vie pro et perso
 - Ressentie rehefa tonga taty -> tsisy stress
 - Cout de la vie aty -> afaka be daoly ny immigrant aty
-- Investissement resa-bola : frais de dossier local/visa (10ar), frais d'avion (19ar) et cout d'installation (14ar)
+- Investissement resa-bola : frais de dossier local/visa (10 million Ar), frais d'avion (19 million Ar) et cout d'installation (14 million Ar)
 - Aza atao sakana ny resaka ara-bola -> pivady tode miasa aby rehefa aty
 - Il existe une liste des agences fiable dans le groupe FB (kandra Québec Canada)
 - 4 mois de preparation (juillet - octobre 2021) : marché de travail, CV, LM et entretien
-- 2 mois za de naha-poinsa
+- 2 mois za de naha-poinsa an'le kandra
 - Attention aux arnaques (l'importance de s'informer)
 - Investissement internet sy fahaizana mikirakira informatique et web : il faut maitriser le fandehany
 - Bloquant hoan'ny ankamaroan'ny olona
 - S'informer au maximum : marché de travail, toutes les demarches, le pays et le province (groupe fb, internet et youtube)
 - S'informer sur le site officiel du pays
 - Ketrikitra au fond fa tsy miandry tolorana et il faut etre autonome (important)
-- Fierté et changement de mindset
-- Verifier si votre experience et competance misy offre international
-- Nom de votre poste am le pays ketrehana - categorie de votre travail
-- Raha mazoto de maka experience am le poste - métier le plus demandés au Canada 2023/2024
-- Adresse email correct qui indiaue votre nom et/ou prenom
+- Fierté et changement de mindset (état d'esprit)
+- Vérifier si votre experience et competance misy offre international
+- Nom de votre poste am le pays ketrehana - catégorie de votre travail
+- Raha mazoto de makà experience am le poste - métier le plus demandés au Canada 2023/2024
+- Adresse email correct qui indique votre nom et/ou prénom
 - Modèle de candidature Canadien (CV et LM) - mon CV est dispo
 - Asaivo corrigé-n'olona ny CV sy LM
 - CV, Profil LinkedIn, github et portfolio (TI)
 - Entre parenthèse : un langage, un Framework, un ou plusieurs positionnements (domaine)
 - Interet github et portfolio -> passion du domaine
 - Profil LinkedIn et resume de profil
-- Soyer actif et partage un post sur LinkedIn
+- Soyer actif et partager post sur LinkedIn
 - Test technique ampanaovina akama senior
 - Débutant dans processus d'embauche
 - Ajout contact LinkedIn
@@ -63,16 +63,16 @@
 - Anecdote pendant les entretiens
 - Attention fa misy resaka diplome resahana (pour mon cas)
 - Resaka equivalance diplome (tsy voatery)
-- Demarche resaka taratasy (gros point à détailler) - traitement simplifié
-- Attention fa tsy voatery haha-poinsa mais ça arrive avec le temps 
+- Demarche resaka taratasy (gros point à détailler) - mon cas : traitement simplifié
+- Attention fa tsy voatery haha-poinsa mais ça arrive avec le temps et avec patience et persévérance
 - Attention fa aman-taonany ny an'ny sasany vo tafa (traitement de dossier)
-- La patience de chaque demarche (Suisse)
+- La patience de chaque demarche (important à informer)
 - Attention fa tsy eldorado ny aty fa ady fona ny fiainana naizanaiza
-- Attention Agence = tsy andoavam-bola ny accompagnement
+- Attention Agence = tsy andoavam-bola ny accompagnement sy ny demarche demande visa et permis
 - Visite et controle fahasalamana
 - Vintana alakaosy et anecdote pendant les demarches (passeport et acte de naissence)
 - Recherche d'emploi dernier trimestre de l'année
-- Adversaires immigration QC
+- Adversaires immigration Qc Canada
 - Préparation départ 
 - Arrivé à l'aéroport
 - Installation et démarches à l'arrivée
