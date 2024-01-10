@@ -42,7 +42,6 @@
 - Interet github et portfolio -> passion du domaine
 - Profil LinkedIn et resume de profil
 - Soyer actif et partager post sur LinkedIn
-- Test technique ampanaovina akama senior
 - Débutant dans processus d'embauche
 - Ajout contact LinkedIn
 - Contact LinkedIn an'olona miasa am le entreprise surtout ny RH
